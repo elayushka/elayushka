@@ -14,7 +14,7 @@
 <p align="center">
   <span style="color: #000000; font-size: 18px;">ꉂ</span> 
   &nbsp;&nbsp;&nbsp;
-  <span style="color: #b8b8b8; font-style: italic; font-family: serif; letter-spacing: 1px;">retarded</span> 
+  <span style="color: #b8b8b8; font-style: italic; font-family: serif; letter-spacing: 1px;">𝑤𝟸𝑖</span> 
   &nbsp;&nbsp;&nbsp;
   <span style="color: #E0395A;">&</span> 
   &nbsp;&nbsp;&nbsp;
