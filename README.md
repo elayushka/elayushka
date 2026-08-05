@@ -1,4 +1,4 @@
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=700&color=000000&background=FFFFFF20&width=491&height=30&lines=Yoo+Won%2C+I'm+waiting+for+you+%E2%9D%A4" alt="Typing SVG" /></a>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=700&color=000000&background=FFFFFF20&width=491&height=30&lines=Yuwon%2C+I'm+waiting+for+you+%E2%9D%A4" alt="Typing SVG" /></a>
 <p align="center">
   <img src="https://cdn.phototourl.com/free/2026-06-15-a374f081-1174-47d1-a5fc-457bc987faf7.jpg" width="100%" height="200px" style="object-fit: cover;">
 </p>
