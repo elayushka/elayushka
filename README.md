@@ -9,7 +9,7 @@
 
 <p align="center">  ɞ 𝘩𝘪𝘪!! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
 <p align="center"> 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘤𝘢𝘭𝘭 𝘮𝘦 - 𝑬𝒍𝒂𝒚 ૮ Элай
-<p align="center"> 𝑎𝑓𝑘 𝑚𝑜𝑠𝑡 𝑡𝑖𝑚𝑒 ⋆.˚
+<p align="center"> 𝑎𝑓𝑘 𝑚𝑜𝑠𝑡 𝑡𝑖𝑚𝑒 ♪
 
 
   
