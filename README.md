@@ -7,9 +7,10 @@
   <img src="https://64.media.tumblr.com/4ae20255f62e2c5f725a15dcf0dedbab/7a2a2ebc0f619da5-77/s2048x3072/4eb9fef2acabd2dd705fb30cc413ef5740e5a2be.pnj" width="100%" height="100px" style="object-fit: cover;">
 </p>
 
-<p align="center"> 𝘩𝘪𝘪!! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
+<p align="center">  ɞ 𝘩𝘪𝘪!! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
 <p align="center"> 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘤𝘢𝘭𝘭 𝘮𝘦 - 𝑬𝒍𝒂𝒚 ૮ Элай
-<p align="center"> ɞ  𝟷𝟼 𝑦.𝑜  
+<p align="center"> 𝑎𝑓𝑘 𝑚𝑜𝑠𝑡 𝑡𝑖𝑚𝑒 ⋆.˚
+
 
   
 <p align="center">
