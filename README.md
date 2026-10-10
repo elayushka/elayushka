@@ -1,6 +1,6 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=700&color=000000&background=FFFFFF20&width=491&height=30&lines=Yuwon%2C+I'm+waiting+for+you+%E2%9D%A4" alt="Typing SVG" /></a>
 <p align="center">
-  <img src="https://cdn.phototourl.com/free/2026-06-15-a374f081-1174-47d1-a5fc-457bc987faf7.jpg" width="100%" height="200px" style="object-fit: cover;">
+  <img src="https://i.ibb.co.com/xqcBNBYV/photo-2026-10-11-01-24-05.jpg" alt="photo-2026-10-11-01-24-05" border="0"></a>
 </p>
 
 ₍^ >ヮ<^₎ .ᐟ <img src="https://64.media.tumblr.com/35eee0c519a92c47a80fb3e2d7158a11/2c233c0d3ddf0421-32/s75x75_c1/acddcbd7efad8faa41e5b82f17514be2a7d30661.gif" width="18px" style="display: inline; vertical-align: middle;">
