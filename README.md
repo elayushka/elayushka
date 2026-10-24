@@ -20,7 +20,7 @@
   &nbsp;&nbsp;&nbsp;
   <span style="color: #E0395A;">&</span> 
   &nbsp;&nbsp;&nbsp;
-  <span style="color: E0395A; font-weight: bold; letter-spacing: 1px;">rυssiคn</span> 
+  <span style="color: E0395A; font-weight: bold; letter-spacing: 1px;">𝘤 + 𝘩</span> 
   &nbsp;&nbsp;&nbsp;
   <span style="color: #000000; vertical-align: middle;"> 。</span> 
   &nbsp;&nbsp;&nbsp;
