@@ -3,9 +3,9 @@
   <img src="https://i.ibb.co.com/xqcBNBYV/photo-2026-10-11-01-24-05.jpg" alt="photo-2026-10-11-01-24-05" border="0"></a>
 </p>
 
-₍^ >ヮ<^₎ .ᐟ <img src="https://64.media.tumblr.com/35eee0c519a92c47a80fb3e2d7158a11/2c233c0d3ddf0421-32/s75x75_c1/acddcbd7efad8faa41e5b82f17514be2a7d30661.gif" width="18px" style="display: inline; vertical-align: middle;">
-  <img src="https://64.media.tumblr.com/4ae20255f62e2c5f725a15dcf0dedbab/7a2a2ebc0f619da5-77/s2048x3072/4eb9fef2acabd2dd705fb30cc413ef5740e5a2be.pnj" width="100%" height="100px" style="object-fit: cover;">
-</p>
+₍^ >ヮ<^₎ .ᐟ
+---------------------------------------------------------------------------------------------------------------------------------------------------
+
 
 <p align="center">  ɞ 𝘩𝘪𝘪!! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦
 <p align="center"> 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘤𝘢𝘭𝘭 𝘮𝘦 - 𝑬𝒍𝒂𝒚 ૮ Элай
@@ -28,5 +28,5 @@
 </p>
 
 <p align="center">
-◟︎<img src="https://komarev.com/ghpvc/?username=elaushka&label=MEOW&color=000000&labelColor=ffffff&style=for-the-badge"/>◞︎　 𓏽⑅　　 
+◟︎<img src="https://komarev.com/ghpvc/?username=elaushka&label=^-^&color=000000&labelColor=ffffff&style=for-the-badge"/>◞︎　 𓏽⑅　　 
 𝄞
